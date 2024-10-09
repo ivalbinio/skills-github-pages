@@ -1,4 +1,4 @@
 ---
-title: Welcome to my blog
+title: Shut your ass up
 ---
-
+Shout out to my n gass
