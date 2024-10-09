@@ -1,4 +1,4 @@
 ---
 title: Shut your ass up
 ---
-Shout out to my n gass
+Shout out to my brothers from the hood
